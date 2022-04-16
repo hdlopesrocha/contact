@@ -8,7 +8,7 @@
 * https://www.linkedin.com/in/henri-de-la-roche-62419366/ (to be deleted)
 
 ## Telegram
-* +351 93 878 19 22 (not always available)
+* https://t.me/hdlopesrocha (not always available)
 
 ## Signal
 * +351 93 878 19 22 (to be deleted)
