@@ -4,11 +4,11 @@
 ## E-mail
 * hdlopesrocha@protonmail.com
 
-## LinkedIn
-* https://www.linkedin.com/in/henri-de-la-roche-62419366/ (to be deleted)
-
 ## Telegram
 * https://t.me/hdlopesrocha (not always available)
+
+## LinkedIn
+* https://www.linkedin.com/in/henri-de-la-roche-62419366/ (to be deleted)
 
 ## Signal
 * +351 93 878 19 22 (to be deleted)
